@@ -68,6 +68,6 @@ To view or customize the dashboard:
 
 **Ritik Roushan**  
 📧 [ritikroushanofcc07@gmail.com]  
-💼 [LinkedIn Profile]([https://www.linkedin.com/in/ritik-roushan](https://www.linkedin.com/in/ritik-roushan-36a849252/))  
+💼 [LinkedIn Profile] (https://www.linkedin.com/in/ritik-roushan-36a849252/)
 
 
